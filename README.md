@@ -1,0 +1,1 @@
+# shimakazepoi123.github.io
